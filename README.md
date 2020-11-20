@@ -1,4 +1,4 @@
-**NAMA :SHOBAHUS SOLICHIN**
+[Logo](foto/shoba1.png) <br>
 
 # Etimologi
 
