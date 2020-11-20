@@ -1,4 +1,4 @@
-[Logo](foto/shoba1.png) <br>
+[Logo fikih](foto/shoba1.png) <br>
 
 # Etimologi
 
