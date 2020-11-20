@@ -1,5 +1,5 @@
 
-[Logo](gambar1/foto1.PNG) 
+[shoba1](gambar1/foto1.PNG) 
 
 # Etimologi
 
