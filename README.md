@@ -1,5 +1,5 @@
 
-[shoba1](gambar1/logo fiqih.png) 
+[shoba1](gambar1/shobahus2.png) 
 
 # Etimologi
 
