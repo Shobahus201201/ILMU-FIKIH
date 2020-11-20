@@ -1,1 +1,6 @@
-# ILMU-FIKIH
+**NAMA :SHOBAHUS SOLICHIN**
+
+# Etimologi
+Dalam bahasa Arab, secara harfiah fikih berarti pemahaman yang mendalam terhadap suatu hal. Beberapa ulama memberikan penguraian bahwa arti fikih secara terminologi yaitu merupakan ilmu yang mendalami hukum Islam yang diperoleh melalui dalil di Al-Qur'an dan Sunnah.[4] Selain itu fikih merupakan ilmu yang juga membahas hukum syar'iyyah dan hubungannya dengan kehidupan manusia sehari-hari, baik itu dalam ibadah maupun dalam muamalah.[1] <br>
+
+Dalam ungkapan lain, sebagaimana dijelaskan dalam sekian banyak literatur, bahwa fiqh adalah "al-ilmu bil-ahkam asy-syar'iyyah al-amaliyyah al-muktasab min adillatiha at-tafshiliyyah", ilmu tentang hukum-hukum syari'ah praktis yang digali dari dalil-dalilnya secara terperinci". Terdapat sejumlah pengecualian terkait pendefinisian ini. Dari "asy-syar'iyyah" (bersifat syari'at), dikecualikan ilmu tentang hukum-hukum selain syariat, seperti ilmu tentang hukum alam, seperti gaya gravitasi bumi. Dari "al-amaliyyah" (bersifat praktis, diamalkan), ilmu tentang hukum-hukum syari'at yang bersifat keyakinan atau akidah, ilmu tentang ini dikenal dengan ilmu kalam atau ilmu tauhid. Dari "at-tafshiliyyah" (bersifat terperinci), ilmu tentang hukum-hukum syari'at yang didapat dari dalil-dalilnya yang "ijmali" (global), misalkan tentang bahwasanya kalimat perintah mengandung muatan kewajiban, ilmu tentang ini dikenal dengan ilmu ushul fiqh. <br>
