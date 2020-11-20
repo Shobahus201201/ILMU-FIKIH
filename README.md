@@ -1,4 +1,4 @@
-[Logo fikih](foto/foto1.png) <br>
+[Logo fikih](foto/foto1.png) 
 
 # Etimologi
 
