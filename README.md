@@ -14,9 +14,10 @@ Setelah hijrah, barulah ayat-ayat yang mewahyukan perintah untuk melakukan puasa
 
 Pembentukan fikih di masa Nabi Muhammad menekankan pada tiga aspek utama yang terkait dengan tugas kenabian beliau. Aspek-aspek tersebut antara lain:
 
-Memperbaiki kepercayaan dan agama masyarakat di zaman jahiliyah. Dalam misi ini, Nabi Muhammad kemudian memperkenalkan Islam sebagai agama pembaharu, dan memperbaiki sistem dengan menghidupkan tauhid.[7]
-Memperbaiki akhlak masyarakat jahiliyah. Sebelum kedatangan Nabi Muhammad, masyarakat Arab jahiliyah memiliki akhlak yang buruk, sehingga tugas Nabi Muhammad adalah untuk memperbaiki akhlak dan moral masyarakat sesuai dengan nilai-nilai Islam.[7]
-Menetapkan aturan-aturan hidup sesuai dengan nilai dan prinsip Islam. Sebelum kedatangan Nabi Muhammad, masyarakat Arab jahiliyah penuh ketidakadilan dan kemerosotan, maka tugas inilah yang kemudian membuat Nabi Muhammad merumuskan hukum-hukum di masyarakat demi terciptanya masyarakat madani. Di sini pula Nabi Muhammad mulai menegakkan dan membina fikih Islami.[7]
+1. Memperbaiki kepercayaan dan agama masyarakat di zaman jahiliyah. Dalam misi ini, Nabi Muhammad kemudian memperkenalkan Islam sebagai agama pembaharu, dan memperbaiki sistem dengan menghidupkan tauhid.[7]
+2. Memperbaiki akhlak masyarakat jahiliyah. Sebelum kedatangan Nabi Muhammad, masyarakat Arab jahiliyah memiliki akhlak yang buruk, sehingga tugas Nabi Muhammad adalah untuk memperbaiki akhlak dan moral masyarakat sesuai dengan nilai-nilai Islam.[7]
+3. Menetapkan aturan-aturan hidup sesuai dengan nilai dan prinsip Islam. Sebelum kedatangan Nabi Muhammad, masyarakat Arab jahiliyah penuh ketidakadilan dan kemerosotan, maka tugas inilah yang kemudian membuat Nabi Muhammad merumuskan hukum-hukum di masyarakat demi terciptanya masyarakat madani. Di sini pula Nabi Muhammad mulai menegakkan dan membina fikih Islami.[7]
+
 Pada masa ini, Nabi Muhammad menerapkan dan mengembangkan fikih Islam secara perlahan-lahan kepada masyarakat Arab. Beliau menerapkan fikih berdasarkan kejadian-kejadian atau perkara-perkara dengan memperhitungkan sebab dan akibatnya. Saat itu apa bila masyarakat sedang menghadapi suatu perkara yang tidak ditemukan jalan keluarnya, maka mereka bertanya kepada Nabi Muhammad. Kemudian Nabi Muhammad memberikan solusinya berdasarkan Al-Qur'an dan Hadis.[7]
 
 Dalam periode ini, para sahabat juga terkadang sebelum bertanya kepada Nabi Muhammad, mereka berijtihad. Kemudian hasil ijtihad itu disampaikan kepada Nabi Muhammad terkait ushul fikih-nya. Jika hasil ijtihad para sahabat disetujui oleh Nabi Muhammad maka menjadi kebenaran dan jika ditolak maka Nabi Muhammad akan menentukan hukumnya terkait perkara tersebut.[8]
