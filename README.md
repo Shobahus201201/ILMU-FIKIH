@@ -21,3 +21,12 @@ Masa Nabi Muhammad ini juga disebut sebagai periode risalah, karena pada masa-ma
 > Pada masa ini, Nabi Muhammad menerapkan dan mengembangkan fikih Islam secara perlahan-lahan kepada masyarakat Arab. Beliau menerapkan fikih berdasarkan kejadian-kejadian atau perkara-perkara dengan memperhitungkan sebab dan akibatnya. Saat itu apa bila masyarakat sedang menghadapi suatu perkara yang tidak ditemukan jalan keluarnya, maka mereka bertanya kepada Nabi Muhammad. Kemudian Nabi Muhammad memberikan solusinya berdasarkan Al-Qur'an dan Hadis.[7]
 
 > Dalam periode ini, para sahabat juga terkadang sebelum bertanya kepada Nabi Muhammad, mereka berijtihad. Kemudian hasil ijtihad itu disampaikan kepada Nabi Muhammad terkait ushul fikih-nya. Jika hasil ijtihad para sahabat disetujui oleh Nabi Muhammad maka menjadi kebenaran dan jika ditolak maka Nabi Muhammad akan menentukan hukumnya terkait perkara tersebut.[8]
+
+2.2 Masa Khulafaur Rasyidin <br>
+> Setelah wafatnya Nabi Muhammad, pemegang otoritas fikih adalah para sahabat, yakni Khulafaur Rashidin. Para sahabat berpegang teguh pada dua sumber utama, yakni Ajâtul Ahkâm yang bersumber dari Al-Qur'an dan Ahâdietsul Ahkâm yang berasal dari Hadis.[9]
+
+>Pada masa itu para sahabat mengumpulkan hadis-hadis Nabi Muhammad di berbagai pelosok negeri dari para perawi. Hal ini bertujuan untuk mendapatkan hadis-hadis yang shohih. Para sahabt juga sangat berhati-hati dalam mengumpulkan hadis-hadis agar tidak ditemukan para pemalsu hadis. Abu Bakar Ash-Shiddiq dan Umar bin Khattab bahkan benar-benar menyaring para perawi hadis, caranya adalah para perawi yang akan menyampaikan hadis harus bisa menghadirkan sedikitnya dua orang saksi yang dapat membenarkan riwayatnya. Jika para saksi membenarkan riwayat hadis dari perawi, maka riwayat perawi tersebut diterima. Namun, jika pewari tidak mampu menghadirkan saksi, maka riwayatnya ditolak.[9]
+
+>Pada periode ini, para faqih mulai berbenturan dengan adat, budaya dan tradisi yang terdapat pada masyarakat Islam kala itu. Ketika menemukan sebuah masalah, para faqih berusaha mencari jawabannya dari Al-Qur'an. Jika di Al-Qur'an tidak diketemukan dalil yang jelas, maka hadis menjadi sumber kedua. Dan jika tidak ada landasan yang jelas juga di Hadis maka para faqih ini melakukan ijtihad.[1]
+
+>Menurut penelitian Ibnu Qayyim, tidak kurang dari 130 orang faqih dari pria dan wanita memberikan fatwa, yang merupakan pendapat faqih tentang hukum.[10]
