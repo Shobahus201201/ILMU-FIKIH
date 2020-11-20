@@ -115,3 +115,5 @@ Manfaat Mempelajari Ilmu  Fiqih
 4. merupakan perwujudan dari kehendak Allah yang mengatur seluruh aspek kehidupan manusia.
 
 5. mewujudkan insan yang berlandaskan islam dan memahami syari'at.
+
+![penutup](foto/shobahus4.jpg)
