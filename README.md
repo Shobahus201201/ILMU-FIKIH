@@ -1,5 +1,5 @@
 
-![Logo fikih](foto/shobahus2.png) 
+![Logo fikih](foto/shobahus1.png) <br>
 
 # Etimologi
 
