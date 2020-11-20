@@ -1,4 +1,5 @@
-[Logo fikih](foto/foto1.png) 
+
+[Logo](gambar1/foto1.png) 
 
 # Etimologi
 
